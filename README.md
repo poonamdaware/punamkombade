@@ -1,2 +1,0 @@
-# punamkombade
-nature
